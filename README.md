@@ -1,5 +1,3 @@
-# Oi, eu sou @21049256-5***
+# Oi, eu sou Ryan Ramos
 
-👀 Estou interessado em jogos
-🌱 Atualmente estou aprendendo topicos especiais
 
